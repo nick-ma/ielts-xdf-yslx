@@ -18,5 +18,5 @@
 > > What is the **exact** amount left in your savings account? 
 > > 你的储蓄账户里到底还有多少余额？ 
 > > **派生词** 
-> > exactly \/ɪgˈzæktli\/ _ad._ 正确的；完全的
+> > exactly \[ɪgˈzæktli\] _ad._ 正确的；完全的
 
